@@ -7,4 +7,4 @@ I might bring a piece of art into this world but I must be disciplined enought n
 
 
 
-What I might be really saying is that I'm a distractable f\*ck and I never really finish my pieces. Just like this one. I guess it could
+What I might be really saying is that I never really finish my pieces. Just like this one. I guess it could
