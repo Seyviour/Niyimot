@@ -10,6 +10,8 @@ All will burn in the heat of the fire
 But I'll be here in this moment forever  
 
 
---This came while writing before the bullet hits
---It's here too jic it doesn't fit there
---Definitely not complete
+
+
+--This came while writing before the bullet hits  
+--It's here too jic it doesn't fit there  
+--Definitely not complete  
