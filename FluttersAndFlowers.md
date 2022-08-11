@@ -1,7 +1,7 @@
 A Moment Forever
 ________________
 
-Flutters and flowers are all I desire
+Flutters and flowers are all I desire  
 A hand in mine, the pulse of another  
 Rainbows and rivers for my eyes to admire  
 Nothing compares to the scent of my lover  
