@@ -1,10 +1,10 @@
 A Moment Forever
 ________________
 
-Flutters and flowers are all I desire  
+Flutters and flowers, the heat of desire  
 A hand in mine, the pulse of another  
-Rainbows and rivers for my eyes to admire  
-Nothing compares to the scent of my lover  
+Rainbows and rivers my eyes do admire  
+but Nothing compares to the scent of my lover  
 All will burn in the heat of the fire  
 But I'll be here in this moment forever  
 
